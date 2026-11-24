@@ -1,0 +1,1 @@
+★☆☆☆☆ One star: closed the bathroom door and expected me to wait outside like a dog. I have not forgiven them; the bowl is also empty.
